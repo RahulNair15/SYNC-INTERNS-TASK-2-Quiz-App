@@ -1,0 +1,1 @@
+# SYNC-INTERNS-TASK-2-Quiz-App-
